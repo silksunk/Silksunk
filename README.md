@@ -17,7 +17,7 @@ FEATURED WALL OF SHAME!!
 
 [Copier logs](https://rentry.co/Ittohatescopiers)
 
-Imagine copying someones REQUESTED PONY, A GIFT TO ME. then sitting right where i sit. like get the fuck out of here, if i come across you just know im confronting. they left like a bitch. dni if your friends with this coward. sorry if i come off as rude but i am VERY defensive when it comes down to copiers. please get some talent and stop copying others. 
+Imagine copying someones REQUESTED PONY, A GIFT TO ME. then sitting right where i sit. I will be confronting you if i see you
 <p align="center">
 <img src="https://files.catbox.moe/cazszi.jpeg" width="36%" height="36%"> 
 
